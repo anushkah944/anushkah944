@@ -51,4 +51,6 @@ I'm currently exploring projects in **VLSI**, **cybersecurity**, and **data scie
 
 # 🤝 Let’s Connect
 📬 **Email:** aah4647@utexas.edu  
-🔗 **LinkedIn:** *add your link here*  
+🔗 **LinkedIn:** www.linkedin.com/in/anushkaxhande
+
+ 
